@@ -1,4 +1,4 @@
-# Hi, I'm MomerS 👋
+# Hi, I'm Omer Shahzad 👋
 
 Final year BS Artificial Intelligence student @ COMSATS University Islamabad
 
